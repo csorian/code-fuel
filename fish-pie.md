@@ -22,7 +22,7 @@
 
 1. Boil and simmer potatoes until tender.
 2. Drain thoroughly and mash with splash of milk and knob of butter. Season with ground black pepper.
-3. Put butter,plain flour and spring onions in another pan.
+3. Put butter, plain flour and spring onions in another pan.
 4. Heat gently, stirring regularly. Cook for 1-2 mins.
 5. Gradually whisk in milk with balloon whisk.
 6. Bring to the boil, stirring to avoid lumps and sticking.
